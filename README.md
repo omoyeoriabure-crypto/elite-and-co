@@ -34,4 +34,4 @@ Corporate identity and logo development.
 ## Connect With Me
 
 Instagram: @eliteandco.247
-Tiktik: @elite.and.co1
+Tiktok: @elite.and.co1
