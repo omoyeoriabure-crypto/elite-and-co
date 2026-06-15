@@ -30,7 +30,6 @@ Corporate identity and logo development.
 - Adobe Illustrator
 - Adobe Photoshop
 - Canva
-- Figma
 
 ## Connect With Me
 
