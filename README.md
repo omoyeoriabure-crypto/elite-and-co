@@ -34,4 +34,5 @@ Corporate identity and logo development.
 
 ## Connect With Me
 
-Instagram: @eliteandco.ng
+Instagram: @eliteandco.247
+Tiktik: @elite.and.co1
